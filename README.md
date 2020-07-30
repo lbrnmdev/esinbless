@@ -1,2 +1,1 @@
-# we'll be back soon
-🚧
+# we'll be back soon 🚧
